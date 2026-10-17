@@ -226,4 +226,4 @@ Fate of the Pharaoh is offered as a complete free version, providing all feature
 Don't miss out on your chance to download Fate of the Pharaoh and start building your empire today! Enjoy the full version with all features included. Happy gaming!
 
 ---
-**Last updated:** 2026-10-16 22:22:10 UTC
+**Last updated:** 2026-10-17 00:56:18 UTC
